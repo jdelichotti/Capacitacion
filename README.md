@@ -1,1 +1,1 @@
-# Capacitacion
+# Capacitación
